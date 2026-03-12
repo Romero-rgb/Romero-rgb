@@ -45,4 +45,4 @@ I spent years in the audiovisual world until I realized I enjoyed **building the
 - **Email:** [aromero94@pm.me](aromero94@pm.me)
 
 *"Vísteme despacio, que tengo prisa."*
-*(Dress me slowly, I'm in a hurry — because the good thing takes time).*
+*(Dress me slowly, I'm in a hurry — because the good things takes time).*
